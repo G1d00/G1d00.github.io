@@ -1,4 +1,4 @@
-# G1d00.github.io
+# Candlestick AI
 
 **Privacy Policy**
 
